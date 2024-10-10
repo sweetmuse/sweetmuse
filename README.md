@@ -1,16 +1,15 @@
-## Hi there 👋
+![ok](https://64.media.tumblr.com/fa0137eceb34aa09b8180f57cb640b70/4fdcaf60041a95f6-e0/s1280x1920/30ea05f2d971d5d8678d19ed3a7243e201c730d5.pnj)
 
-<!--
-**sweetmuse/sweetmuse** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+　　　　　　　　　⸺⸺⸺　　　　　　　⸺
+　　　　　　　　　　　　◜　momento vivere.
 
-Here are some ideas to get you started:
+　　cuddle and hide is **fine**, 　　im not a big talker however. 
+　　Im usually offtab or editing a pony if im alone - feel free to come up to me.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+  　　　　 fair warning though, i am big on __gallaluo, luotio, renhill, aventio, wrioney, ruscara, and baineuv__.
+
+      　　 　　  for anything else you should check my carrd.
+
+![uh](https://64.media.tumblr.com/005ab938f156186a2980988753b3ff4d/4fdcaf60041a95f6-6d/s1280x1920/6fab98b54ce2392a0bec77cf80eca598f4f57688.pnj)

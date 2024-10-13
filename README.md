@@ -1,15 +1,18 @@
-![ok](https://64.media.tumblr.com/fa0137eceb34aa09b8180f57cb640b70/4fdcaf60041a95f6-e0/s1280x1920/30ea05f2d971d5d8678d19ed3a7243e201c730d5.pnj)
+![ok](https://64.media.tumblr.com/392a769b5680f4ce7caa99af7e2972b0/fe19043fe0eb2ec2-8c/s1280x1920/d6506b1f6aa67563f3fb4e242022f7d154f17a78.pnj)
 
 　　　　　　　　⸺⸺⸺　　　　　　　⸺
 　　　　　　　　　　　◜　momento vivere.
 
-　　cuddle and hide is **fine**, 　　im not a big talker however. 
+　　cuddle and hide is **fine**, im not a big talker however. 
 　　Im usually offtab or editing a pony if im alone - feel free to come up to me.
 
 
 
-  　　　　 fair warning though, i am big on __gallaluo, luotio, renhill, aventio, wrioney, mavtano (mlm), ruscara, and baineuv__.
+
+  　　　fair warning though, i am big on __gallaluo, luotio, renhill, wrioney, mavtano (mlm), ruscara, and baineuv__.
+
+
+
+![uh](https://64.media.tumblr.com/a131532b1cd174caf435142255970199/fe19043fe0eb2ec2-cd/s1280x1920/3876a150ffdeef60d4435093abffbbf7a9696058.gifv)
 
       　　 　　  for anything else you should check my carrd.
-
-![uh](https://64.media.tumblr.com/005ab938f156186a2980988753b3ff4d/4fdcaf60041a95f6-6d/s1280x1920/6fab98b54ce2392a0bec77cf80eca598f4f57688.pnj)

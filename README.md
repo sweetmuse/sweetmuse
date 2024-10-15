@@ -9,7 +9,7 @@
 
 
 
-  　　　fair warning though, i am big on __gallaluo, luotio, renhill, wrioney, mavtano (mlm), ruscara, and baineuv__.
+  　　　fair warning though, i am big on __gallaluo, renhill, mavtano (mlm), jiaoday, pietano, ruscara, and baineuv__.
 
 
 

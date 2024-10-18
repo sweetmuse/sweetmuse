@@ -5,11 +5,12 @@
 
 　　cuddle and hide is **fine**, im not a big talker however. 
 　　Im usually offtab or editing a pony if im alone - feel free to come up to me.
+  　　I've been flagged as an autoclicker so you'll see me going in and out of existence.
 
 
 
 
-  　　　fair warning though, i am big on __gallaluo, renhill, mavtano (mlm), jiaoday, pietano, ruscara, and baineuv__.
+  　　　ship warning, i really only like __gallaluo, renhill, mavtano (mlm), jiaoday, pietano, ruscara, and baineuv__. 
 
 
 
